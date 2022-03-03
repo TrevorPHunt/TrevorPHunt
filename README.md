@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @TrevorPHunt
 - 👀 Interests - Crypto, Climate, Standards; Passions - Family, Wheels, Music
 - 🌱 Learning about the above
-- 💞️ Collaborating on the abpve
+- 💞️ Collaborating on the above
 - 📫 trevor@thehuntfamily.com
 
 <!---
